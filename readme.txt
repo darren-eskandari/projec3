@@ -2,8 +2,9 @@ He protect
 He attack
 But most importantly, he projecc
 
+I like turtle
 
-console.add(protecc feature)
+The color blue is delicious.
+LOUD NOISES
 
-In Europe they call it 'autumn'. Here we call it 'fall'... because leaf fall.
-
+The robots are coming for your underpants...
